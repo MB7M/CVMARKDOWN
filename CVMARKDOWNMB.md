@@ -1,15 +1,18 @@
 #**CONTACT**
 
-[M'envoyer un e-mail](mohamed.bouzarouata@gmail.com 
- ![Linkedin](https://fr.vecteezy.com/png/18930587-logo-linkedin-png-icone-linkedin-png-transparent) : [MB](https://linkedin.com/in/mohamedbouzarouata) 
+[M'envoyer un e-mail](mailto:mohamed.bouzarouata@gmail.com)  
+
+[LinkedIn MB](https://linkedin.com/in/MB7M) 
 
 #**PRESENTATION** 
-> Professionnel expérimenté avec plus de 8 ans d'expérience dans le domaine de la logistique et du transport express. Actuellement en reconversion professionnelle, je me dirige vers les métiers de la cybersécurité. Pour ce faire, j'ai entrepris une formation d'initiation en informatique technicien support système et réseau.
+> _Professionnel expérimenté avec plus de 8 ans d'expérience dans le domaine de la logistique et du transport express. Actuellement en reconversion professionnelle, je me dirige vers les métiers de la cybersécurité. Pour ce faire, j'ai entrepris une formation d'initiation en informatique technicien support système et réseau._
 
 #**FORMATION**
 
 MASTER Entrepreunariat et management de projet à **l'IAE VALENCIENNES** -- 2016-2018
+
 LICENCE Logistique globale  à **l'UNIVERSITE DE VALENCIENNES** -- 2015-2016
+
 DUT Techniques de commercialisation à **l'UNIVERSITE DE VALENCIENNES** -- 2013-2015
 
 #**EXPERIENCE PROFESSIONNELLE**
